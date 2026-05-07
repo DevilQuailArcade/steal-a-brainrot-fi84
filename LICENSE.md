@@ -1,4 +1,4 @@
-
+Experience steal a brainrot like never before with hidden steal a brainrot Script, the #1 Script. Includes god mode and anti-ban for unbeatable
 
 
 
